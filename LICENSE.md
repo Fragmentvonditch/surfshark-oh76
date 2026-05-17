@@ -1,10 +1,10 @@
-Top Surfshark Plugin | política de não registro + túnel dividido é o melhor Surfshark plugin com política de não registro e túnel dividido. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/surfshark-oh76/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
