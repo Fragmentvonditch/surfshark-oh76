@@ -1,4 +1,4 @@
-
+Top Surfshark Plugin | no-logs policy + split tunneling is the best Surfshark plugin with no-logs policy and split tunneling. Secure and optimized.
 
 
 
